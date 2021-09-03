@@ -1,0 +1,2 @@
+# namangan
+nnamangan viloyati
